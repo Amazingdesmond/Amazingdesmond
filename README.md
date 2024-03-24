@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Amazingdesmond
 - 👀 I’m interested in Cryptocurrency,photography and football...
-- 🌱 I’m currently learning ..photography.
+- 🌱 I’m currently a photographer.
 - 💞️ I’m looking to collaborate on ..Any media available where I can develop.
 - 📫 How to reach me ...Desmondamazing9@gmail.com
 
